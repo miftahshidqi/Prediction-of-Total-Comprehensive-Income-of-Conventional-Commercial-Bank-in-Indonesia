@@ -1,0 +1,1 @@
+# Prediction-of-Total-Comprehensive-Income-of-Conventional-Commercial-Bank-in-Indonesia
